@@ -1,6 +1,6 @@
 - 🫶 Hi, I’m @valeril1s
 - 🔭 I’m interested in learning something new!
-- 🌒 I’m currently learning HTML/CSS, Java, SQL and Python.
+- 🐋 I’m currently learning HTML/CSS, Java, SQL and Python.
 - 🫀 I’m looking to collaborate with crazy and creative workaholics. 
 - 🎞 How to reach me? You won't know, I'm like the corpse of a dead bride. (P.s. btw it's a great cartoon)
 - 🪷 Pronouns: she/her
